@@ -1,0 +1,1 @@
+- [Expert Mechanic Rebuilding 10-Speed Manual Transmission of Hino 1J Truck](https://youtu.be/Ox96rBbu810)
